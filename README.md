@@ -71,7 +71,7 @@
 ---
 
 ## 🤝 Connect
-- 📧 Email: [sheetalyadav0402@gmail.com](mailto:sheetalyadav0402@gmail.com)  
+- 📧 Email: [sheetal@solidevelectrosoft.com](mailto:sheetal@solidevelectrosoft.com)  
 - 💼 LinkedIn: [linkedin.com/in/sheetal-y-762443171](https://www.linkedin.com/in/sheetal-y-762443171)  
 - 🌐 Portfolio: Coming Soon...
 
